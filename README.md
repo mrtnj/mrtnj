@@ -1,8 +1,8 @@
 ### Martin Johnsson
 
-PhD in genetics
+PhD in genetics, docent (associate professor) in animal science
 
-The Department of Animal Breeding and Genetics, Swedish University of Agricultural Sciences.
+The Department of Animal Biosciences, Swedish University of Agricultural Sciences.
 
 
 [Homepage with cv and sundry](https://www.martinjohnsson.se)
